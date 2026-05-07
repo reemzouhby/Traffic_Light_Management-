@@ -511,7 +511,7 @@ Contributions welcome! Please:
 
 [⬆ Back to Top](#-smart-traffic-control-system)
 
-Made with ❤️ by  Reem , Mariam and Sourour 
+Made with ❤️ by  Reem ,Majdeline, Mariam and Sourour 
 
 </div>
 
